@@ -1,3 +1,1 @@
 # mywork
-keep private
-njuggklj,',
